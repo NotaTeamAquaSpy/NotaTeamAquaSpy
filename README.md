@@ -2,7 +2,7 @@
 - 🟪 YARG! YOUR SEA FAIRING PARTNER IS A MER-MAN! 🧜‍♂️🧜‍♂️!!
 - 🚫 NAUR, **POKÉPHILIA, VOLO & GHETSIS KINS, HARDENSHIPPING DO NOT INTERACT!** OFF WITH YE' TO DAVY JONES LOCKER!
 - ৻ AS WELL AS YOU ''VALENTINOS'' OF DE' HASBIN HOTEL, WALK THE BLANK!! MATEY!
-- 💞️ Kin List: Hilda/Rosa Brendan/May, Emil & Zinnia...
+- 💞️ Kins ig Hilda/Rosa Brendan/May, Emil & Zinnia...
 - 📫 How to reach me ye'ask? YARRR! YOU SKULLWAG, ASK ME FOR CONTACTS AND IF YARRR ARE WORHTY!!! I'LL SAY YARR! YARHARHAR!
 - Comf: Papa Nier, Norman, Team Aquas, Serena, Zinnia & Twewy1
 - ☝🤓 Fun fact: A Matelotage is a type of Gay Marriage for Pirates, where they can extchange sexual favours.
