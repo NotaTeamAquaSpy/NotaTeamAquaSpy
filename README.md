@@ -2,6 +2,7 @@
 - 🟪 YARG! YOUR SEA FAIRING PARTNER IS A MER-MAN! 🧜‍♂️🧜‍♂️!!
 - 🚫 NAUR, **POKÉPHILIA, VOLO & GHETSIS KINS, HARDENSHIPPING DO NOT INTERACT!** OFF WITH YE' TO DAVY JONES LOCKER!
 - ৻ AS WELL AS YOU ''VALENTINOS'' OF DE' HASBIN HOTEL, WALK THE BLANK!! MATEY! AND NO SLURS EITHER, YE' SWAMP DOGS!
+↪ DO NOT FORCE YER' DASTARDLY HEADCANNONS UPON ME! I DO NOT GIVE YE' RAT ARSE!!!
 - 💞️ W/Nobody Rn!!! Yarg... 💔
 - 📫 How to reach me ye'ask? YARRR! YOU SKULLWAG, ASK ME FOR CONTACTS AND IF YARRR ARE WORHTY!!! I'LL SAY YARR! YARHARHAR!
 - ☝🤓 Fun fact: A Matelotage is a type of Gay Marriage for Pirates, where they can extchange sexual favours.
@@ -10,7 +11,7 @@ ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, OBJECTION.LOLS & 
 
 ——→ If Yar Matey doesn't interact or sit with ye' it's not because i want'chu to talk de' plank. It's because yar matey is very shy and nervous sometimes, whike other times they are very excited and talkative...
 
-          =Basics=
+=Basics=
 - 🍥↓Comfs↓🍥
 PKMN: Norman, Team Aquas, Serena, Zinnia...
 Nier: Papa Nier
