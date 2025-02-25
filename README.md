@@ -9,7 +9,8 @@
 ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, OBJECTION.LOLS & OTHER ARTS... **DO NOT COPY** YOUR MATIES WORK! OR OFF THE DE BLANK WITH YE'S.... ALTHOUGH! *YOU MAY TAKE INSPIRATION* BUT **YOU MUST ASK FIRST!** BUT NEVER EVVVAAR take inspo FROM MY OCS! (ORIGINAL characters)!!
 
 ——→ If Yar Matey doesn't interact or sit with ye' it's not because i want'chu to talk de' plank. It's because yar matey is very shy and nervous sometimes, whike other times they are very excited and talkative...
-          [Basics]
+
+          =Basics=
 - 🍥↓Comfs↓🍥
 PKMN: Norman, Team Aquas, Serena, Zinnia...
 Nier: Papa Nier
