@@ -13,8 +13,8 @@ ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, OBJECTION.LOLS & 
 
 =Basics=
  🍥↓Comfs↓🍥
-PKMN: Norman, Team Aquas, Serena, Zinnia...
-Nier: Papa Nier
+° PKMN: Norman, Team Aquas, Serena, Zinnia..
+° Nier: Papa Nier
 Ace Attorney: Beanix/Feenie, Ryunosuke Naruhodo, Diego Armando, Lamiror...
 Other: Prof/Hershel Layton
 
