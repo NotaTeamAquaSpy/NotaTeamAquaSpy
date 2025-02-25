@@ -11,8 +11,8 @@ ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, OBJECTION.LOLS & 
 
 ——→ If Yar Matey doesn't interact or sit with ye' it's not because i want'chu to talk de' plank. It's because yar matey is very shy and nervous sometimes, while other times they are very excited and talkative...
 
-- =Basics=
- 🍥↓Comfs↓🍥
+ =Basics=
+- 🍥↓Comfs↓🍥
 - PKMN: Norman, Team Aquas, Serena, Zinnia..
 - Nier: Papa Nier
 - Ace Attorney: Beanix/Feenie, Ryunosuke Naruhodo, Diego Armando, Lamiror...
