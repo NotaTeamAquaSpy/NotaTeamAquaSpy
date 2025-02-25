@@ -3,13 +3,13 @@
 - 🚫 NAUR, **POKÉPHILIA, VOLO & GHETSIS KINS, HARDENSHIPPING DO NOT INTERACT!** OFF WITH YE' TO DAVY JONES LOCKER!
 - ৻ AS WELL AS YOU ''VALENTINOS'' OF DE' HASBIN HOTEL, WALK THE BLANK!! MATEY! AND NO SLURS EITHER, YE' SWAMP DOGS!
 ↪ DO NOT FORCE YER' DASTARDLY HEADCANNONS UPON ME! I DO NOT GIVE YE' RAT ARSE!!!
-- 💞️ W/Nobody Rn!!! Yarg... 💔
+- 💞️ W/Nobody Rn!!! Yarg...
 - 📫 How to reach me ye'ask? YARRR! YOU SKULLWAG, ASK ME FOR CONTACTS AND IF YARRR ARE WORHTY!!! I'LL SAY YARR! YARHARHAR!
 - ☝🤓 Fun fact: A Matelotage is a type of Gay Marriage for Pirates, where they can extchange sexual favours.
 --- 
-ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, OBJECTION.LOLS & OTHER ARTS... **DO NOT COPY** YOUR MATIES WORK! OR OFF THE DE BLANK WITH YE'S.... ALTHOUGH! *YOU MAY TAKE INSPIRATION* BUT **YOU MUST ASK FIRST!** BUT NEVER EVVVAAR take inspo FROM MY OCS! (ORIGINAL characters)
+ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, OBJECTION.LOLS & OTHER ARTS... **DO NOT COPY** YOUR MATIES WORK! OR OFF THE DE BLANK WITH YE'S.... ALTHOUGH! *YOU MAY TAKE INSPIRATION* BUT **YOU MUST ASK FIRST!** BUT NEVER EVVVAAR take inspo FROM MY OCS! (ORIGINAL characters) NO MATTER WAT MATEY!!
 
-——→ If Yar Matey doesn't interact or sit with ye' it's not because i want'chu to talk de' plank. It's because yar matey is very shy and nervous sometimes, whike other times they are very excited and talkative...
+——→ If Yar Matey doesn't interact or sit with ye' it's not because i want'chu to talk de' plank. It's because yar matey is very shy and nervous sometimes, while other times they are very excited and talkative...
 
 =Basics=
  🍥↓Comfs↓🍥
@@ -24,7 +24,7 @@ Other: Prof/Hershel Layton
 PKMN: May/Brendan.
 AA: Ema Skye, Mia Fey...
 
-—Major Kins—
+↘Major Kin↙
 PKMn: Zinnia...
 AA: Trucy Wright (Younger), Kay/Cléa Faraday
 <!---
