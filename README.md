@@ -7,7 +7,7 @@
 - 📫 How to reach me ye'ask? YARRR! YOU SKULLWAG, ASK ME FOR CONTACTS AND IF YARRR ARE WORHTY!!! I'LL SAY YARR! YARHARHAR!
 - ☝🤓 Fun fact: A Matelotage is a type of Gay Marriage for Pirates, where they can extchange sexual favours.
 --- 
-ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, OBJECTION.LOLS & OTHER ARTS... **DO NOT COPY** YOUR MATIES WORK! OR OFF THE DE BLANK WITH YE'S.... ALTHOUGH! *YOU MAY TAKE INSPIRATION* BUT **YOU MUST ASK FIRST!** BUT NEVER EVVVAAR take inspo FROM MY OCS! (ORIGINAL characters)!!
+ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, OBJECTION.LOLS & OTHER ARTS... **DO NOT COPY** YOUR MATIES WORK! OR OFF THE DE BLANK WITH YE'S.... ALTHOUGH! *YOU MAY TAKE INSPIRATION* BUT **YOU MUST ASK FIRST!** BUT NEVER EVVVAAR take inspo FROM MY OCS! (ORIGINAL characters)
 
 ——→ If Yar Matey doesn't interact or sit with ye' it's not because i want'chu to talk de' plank. It's because yar matey is very shy and nervous sometimes, whike other times they are very excited and talkative...
 
