@@ -13,20 +13,20 @@ ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, OBJECTION.LOLS & 
 
 =Basics=
  🍥↓Comfs↓🍥
-° PKMN: Norman, Team Aquas, Serena, Zinnia..
-° Nier: Papa Nier
-Ace Attorney: Beanix/Feenie, Ryunosuke Naruhodo, Diego Armando, Lamiror...
-Other: Prof/Hershel Layton
+- PKMN: Norman, Team Aquas, Serena, Zinnia..
+- Nier: Papa Nier
+- Ace Attorney: Beanix/Feenie, Ryunosuke Naruhodo, Diego Armando, Lamiror...
+- Other: Prof/Hershel Layton
 
 
  💫Kins💫
-↓Similar too↓
-PKMN: May/Brendan.
-AA: Ema Skye, Mia Fey...
+- ↓Similar too↓
+- PKMN: May/Brendan.
+- AA: Ema Skye, Mia Fey...
 
 ↘Major Kin↙
-PKMn: Zinnia...
-AA: Trucy Wright (Younger), Kay/Cléa Faraday
+- PKMn: Zinnia...
+- AA: Trucy Wright (Younger), Kay/Cléa Faraday
 <!---
 NotaTeamAquaSpy/NotaTeamAquaSpy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
