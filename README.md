@@ -18,16 +18,16 @@ ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, OBJECTION.LOLS & 
 - PKMN: Norman, Team Aquas, Serena, Zinnia..
 - Nier: Papa Nier
 - Ace Attorney: Beanix/Feenie, Ryunosuke Naruhodo, Diego Armando, Lamiror...
-- Other: Prof/Hershel Layton
+- Other: Luke Triton
 
 
  💫Kins💫
 - ↓Similar too↓
-- PKMN: May/Brendan.
+- PKMN: May/Brendan, Silver: Age Regression...
 - AA: Ema Skye, Mia Fey...
 
 ↘Major Kin↙
-- PKMn: Zinnia...
+- PKMn: Zinnia, N: Age Regression...
 - AA: Trucy Wright (Younger), Kay/Cléa Faraday
 <!---
 NotaTeamAquaSpy/NotaTeamAquaSpy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
