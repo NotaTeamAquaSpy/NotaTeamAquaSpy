@@ -8,16 +8,16 @@
 - ☝🤓 Fun fact: A Matelotage is a type of Gay Marriage for Pirates, where they can extchange sexual favours.
 - 
 --- 
-ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, OBJECTION.LOLS & OTHER ARTS... **DO NOT COPY** YOUR MATIES WORK! OR OFF THE DE BLANK WITH YE'S.... ALTHOUGH! *YOU MAY TAKE INSPIRATION* BUT **YOU MUST ASK FIRST!** BUT NEVER EVVVAAR take inspo FROM MY OCS! (ORIGINAL characters) NO MATTER WAT MATEY!!
+ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, AND FANART ARTS... **DO NOT COPY** YOUR MATIES WORK! OR OFF THE DE BLANK WITH YAR!.... ALTHOUGH! *YOU MAY TAKE INSPIRATION* BUT **YOU MUST ASK FIRST!** BUT NEVER EVVVAAR take inspo FROM MY OCS! (ORIGINAL characters) NO MATTER WAT MATEY!!
 
-——→ If Yar Matey doesn't interact or sit with ye' it's not because i want'chu to talk de' plank. It's because yar matey is very shy and nervous sometimes, while other times they are very excited and talkative...
+——→ If Yar Matey doesn't interact right away or sit with ye' it's not because i want'chu to talk de' plank. It's because yar matey is very shy and nervous sometimes, or just busy and/or off tab, while other times they are very excited and talkative...
 
  =Basics=
+ Fandoms: Nier, Final Fantasy, Kingdom Hearts, Pokémon, Professor Layton older games
  
  🍥↓Comfs↓🍥
 - PKMN: Norman, Team Aquas, Serena, Zinnia..
 - Nier: Papa Nier
-- Ace Attorney: Beanix/Feenie, Ryunosuke Naruhodo, Diego Armando, Lamiror...
 - Other: Luke Triton
 
 NotaTeamAquaSpy/NotaTeamAquaSpy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
