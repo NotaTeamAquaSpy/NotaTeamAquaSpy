@@ -19,7 +19,3 @@ ARG! YOUR MATEY DOES LOTS OF SPRITE WORK, TINTING SHENANIGANS, AND FANART ARTS..
 - PKMN: Norman, Team Aquas, Serena, Zinnia..
 - Nier: Papa Nier
 - Other: Luke Triton
-
-NotaTeamAquaSpy/NotaTeamAquaSpy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
